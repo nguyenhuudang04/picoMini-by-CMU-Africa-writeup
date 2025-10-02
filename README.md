@@ -1,0 +1,1 @@
+# picoMini-by-CMU-Africa-writeup
